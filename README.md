@@ -22,7 +22,7 @@ Graduated in August 2025 with a Master's in Business Analytics. I'm passionate a
 
 ## 📫 Let's Connect!
 
-- **LinkedIn:** [linkedin.com/in/YOUR-LINKEDIN]( https://www.linkedin.com/in/samihabinteabdullah/)
+- **LinkedIn:** [https://www.linkedin.com/in/samihabinteabdullah/]
 - **Email:** samihabinte101@gmail.com
 
 ---
